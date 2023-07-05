@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Tharunchinagani
-- 👀 I’m interested in 
+- 👀 I’m interested in COMMUNICATION
 - 🌱 I’m currently learning Ece BE
-- 💞️ I’m looking to collaborate on ...
+- 💞️ 
 - 📫 How to reach me ...
 chinaganitharun@gmail.com
 <!---
