@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Tharunchinagani
-- 👀 I’m interested in COMMUNICATION
-- 🌱 I’m currently learning Ece BE
+- 👀 I’m interested in Learning New things and Researching on it.
+- 🌱 I’m ECE Graduate from NHCE Bangalore
 - 💞️ 
 - 📫 How to reach me ...
 chinaganitharun@gmail.com
